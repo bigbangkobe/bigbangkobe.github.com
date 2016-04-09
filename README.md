@@ -1,1 +1,0 @@
-# bigbangkobe.github.com
